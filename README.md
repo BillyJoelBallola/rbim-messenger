@@ -1,4 +1,5 @@
-This Privacy Policy describes how we collect, use, and disclose your personal information when you use our Magdalena Community Hub.
+This Privacy Policy describes how we collect, use, and disclose your personal information when you use our **Magdalena Community Hub**.
+
 
 **Information We Collect:**
 
